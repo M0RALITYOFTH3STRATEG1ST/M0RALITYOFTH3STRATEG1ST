@@ -1,1 +1,1 @@
-https://github.com/M0RALITYOFTH3STRATEG1ST/M0RALITYOFTH3STRATEG1ST/issues/1#issue-4762277726
+<img width="1200" height="1200" alt="Image" src="https://github.com/user-attachments/assets/facacc12-41d2-4976-989f-555e6a746978" />
