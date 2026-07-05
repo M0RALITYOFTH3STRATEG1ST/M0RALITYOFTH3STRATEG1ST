@@ -8,7 +8,7 @@
 
 - my fandoms that i’m currently in / have been in are as listed, apologies if i miss a few.
 
-- Unstable Smp , Forsaken (iwecuf fandom.) , Tadc ( IWVECUF FANDOM. AND DO /NOT/ SPOIL EPISODE NINE. ) , Murder Drones (fandom would be preferred to just say hi or something,, i forgot like half the plot. ) , Animal Hospital , Dandys World ( iwcuf fandom . ) , Crk ( not as much anymore , though i do know most of the lore . ) , Phighting ! , Sfawtde / Dawtde , No More Time . Again, apologies if i missed a few ,,
+- Unstable Smp , Forsaken (iwecuf fandom.) , Tadc ( IWVECUF FANDOM. AND DO /NOT/ SPOIL EPISODE NINE. ) , Murder Drones (fandom would be preferred to just say hi or something,, i forgot like half the plot. ) , Animal Hospital , Dandys World ( hiatus, fandom pref dni, please respect this. ) , Crk ( not as much anymore , though i do know most of the lore . ) , Phighting ! , Sfawtde / Dawtde , No More Time . Again, apologies if i missed a few ,,
 
 - DNI : T.R.A.S.H , extremely problematic fandoms , ex: terrible mouse , hazbin / helluva . darkshippers DNI . 
 
