@@ -2,7 +2,8 @@
 
 🦜 ;; INFO / BYI / BYF !! ☆༄
 
-- hello, greetings, salutations, whichever one you prefer. i’m bee, or uh ,, i also go by x2 , timey , and medkit . i’m a fictionkin and a minor, those who are 18+ would be preferred not to interact, or iwvec unless i knew you prior . 
+- hello, greetings, salutations, whichever one you prefer. i’m bee, or uh ,, i also go by x2 , timey , and medkit . i’m a fictionkin and a minor, those who are 18+ would be preferred not to interact, or iwvec unless i knew you prior . oh, and i may seem a bit,, err, cold at first. rude / harsh too. it just,, depends on how you approach me. i'm very prone to grudges if you rub off on me the wrong way. aan exception is if your my friends' oomfs,, i'll still be awkward, but if you share any interests with me, i mmay come to tolerate you..
+though, if i say stop, STOP. if you keep pestering me, forget it. 
 
 - my birthday is august 30th , yeah ,,
 
