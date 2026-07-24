@@ -34,7 +34,7 @@ I LOVE YOU OOMFIES /P AAAAAHHHAEUGAEGUH G🥹🥹🥹🥹 YIU GUYS ARE AMAZING !
 
 - Mili !!!
 
-- @wifiessss hi there hhihiihg🥹🥹🥹hiiii
+- @wifiessss my other half you will rarely ever see me without them they are my BEST friend i could go on and on and on about how much they mean to me DAWGGG DONT EVEN JOKE LAD !!!! my best of all friends 💝💝💝💝/p/silly/gen 
 
 woaah ,, you really read this far ? thank you !!! (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟwell, this is the end , farewell whoever is reading this , be it oomf or not !! i hope you have a nice day / night !! 
 
