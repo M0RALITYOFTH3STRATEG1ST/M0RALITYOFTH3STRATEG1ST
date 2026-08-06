@@ -11,7 +11,7 @@ though, if i say stop, STOP. if you keep pestering me, forget it.
 
 - Unstable Smp , Forsaken (iwecuf fandom.) , Tadc ( IWVECUF FANDOM. ) , Murder Drones (fandom iwcuf. ) , Animal Hospital Anomaly , Dandys World ( hiatus, fandom pref dni, please respect this. ) , Crk ( not as much anymore , though i do know most of the lore . ) , Phighting ! , Sfawtde / Dawtde , No More Time , Minecraft in general . Again, apologies if i missed a few ,,
 
-- DNI : T.R.A.S.H , extremely problematic fandoms , ex: terrible mouse , hazbin / helluva fandom / vivzepop supporters, yall R weird asf ,, . darkshippers DNI . 
+- DNI : T.R.A.S.H , extremely problematic fandoms , ex: terrible mouse , hazbin / helluva fandom / vivzepop supporters, yall R weird asf ,, . darkshippers + boundary breakers DNI . 
 
 - IWC : subspace cosplayers / fictkins unless we are close , most strangers unless i’m in a particularly alright mood / i interact first , previously stated fandoms , i don’t ,, quite know what to put here , apologies.
 
