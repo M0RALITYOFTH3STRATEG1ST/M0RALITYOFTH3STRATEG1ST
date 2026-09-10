@@ -2,12 +2,12 @@
 
 🦜 ;; INFO / BYI / BYF !! ☆༄
 
-- hello, greetings, salutations, whichever one you prefer. i’m bee, or uh ,, i also go by x2 , sharp , and medkit . i’m a fictionkin and a minor, those who are 18+ would be preferred not to interact, or iwvec unless i knew you prior . oh, and i may seem a bit,, err, cold at first. rude / harsh too. it just,, depends on how you approach me. i'm very prone to grudges if you rub off on me the wrong way. aan exception is if your my friends' oomfs,, i'll still be awkward, but if you share any interests with me, i mmay come to tolerate you..
+- hello, greetings, salutations, whichever one you prefer. i’m bee, or uh ,, i also go by x2 and medkit . i’m a fictionkin and a minor, those who are 18+ would be preferred not to interact, or iwvec unless i knew you prior . oh, and i may seem a bit,, err, cold at first. rude / harsh too. it just,, depends on how you approach me. i'm very prone to grudges if you rub off on me the wrong way. aan exception is if your my friends' oomfs,, i'll still be awkward, but if you share any interests with me, i mmay come to tolerate you..
 though, if i say stop, STOP. if you keep pestering me, forget it. 
 
 - my birthday is august 30th , yeah ,,
 
-- my fandoms that i’m currently in / have been in are as listed, apologies if i miss a few.
+- my fandoms that i’m currently in and fixated on, apologies if i miss a few.
 
 - Unstable Smp , Forsaken (iwecuf fandom.) , , Animal Hospital Anomaly ,Phighting ! , Sfawtde / Dawtde , No More Time , Minecraft in general Prolly more.. . Again, apologies if i missed a few ,,
 
@@ -21,7 +21,7 @@ though, if i say stop, STOP. if you keep pestering me, forget it.
 
 - oohhh this is going to be my favorite part🥹🥹🥹 LIST OF MY OOMFIESSS AAAA 💝💝
 
-- Azure / Wifies , Atlas / Azure , Bagel / 1x , Zero , Star , Leon , Sean / Null , Silas , Frost / Noel , Sorrow !!!
+- CRUCIBLE / WIFIES!!! , Bill / Azure , Bagel / 1x , Zero , Star , Leon , Sean / Null , Spoke , Frost / Noel , Sorrow !!!
 I LOVE YOU OOMFIES /P AAAAAHHHAEUGAEGUH G🥹🥹🥹🥹 YIU GUYS ARE AMAZING !!!! <33
 
 - Some of my favorite songs / Artists ! :
