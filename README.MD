@@ -9,15 +9,15 @@ though, if i say stop, STOP. if you keep pestering me, forget it.
 
 - my fandoms that i’m currently in / have been in are as listed, apologies if i miss a few.
 
-- Unstable Smp , Forsaken (iwecuf fandom.) , Tadc ( IWVECUF FANDOM. ) , Murder Drones (fandom iwcuf. ) , Animal Hospital Anomaly , Dandys World ( hiatus, fandom pref dni, please respect this. ) , Crk ( not as much anymore , though i do know most of the lore . ) , Phighting ! , Sfawtde / Dawtde , No More Time , Minecraft in general . Again, apologies if i missed a few ,,
+- Unstable Smp , Forsaken (iwecuf fandom.) , , Animal Hospital Anomaly ,Phighting ! , Sfawtde / Dawtde , No More Time , Minecraft in general Prolly more.. . Again, apologies if i missed a few ,,
 
-- DNI : T.R.A.S.H , extremely problematic fandoms , ex: terrible mouse , hazbin / helluva fandom / vivzepop supporters, yall R weird asf ,, . darkshippers + boundary breakers DNI . 
+- DNI : T.R.A.S.H , extremely problematic fandoms , ex: terrible mouse , hazbin / helluva fandom / vivzepop supporters, yall R weird asf ,, Dandys World fandom / players unless we’re close (i really don’t want to talk to people who support qwelver, i’m mainly neutral on the controversy however.) . darkshippers + boundary breakers DNI . 
 
 - IWC : subspace cosplayers / fictkins unless we are close , most strangers unless i’m in a particularly alright mood / i interact first , previously stated fandoms , i don’t ,, quite know what to put here , apologies.
 
 - FICTKINS : Medkit, (phighting.) Two Time , ( Forsaken . ) , uu!parrotx2 ,
 
-- CURRENT FAVS : parrotx2 , conexion / sharpness , eggchan , slingshot , medkit , hyperlaser , detective intern ,, theyre cute ok . dr. harlow , aand secret agent !!
+- CURRENT FAVS : parrotx2 , conexion / sharpness , eggchan , rejoice , unstable smp in general ^_^ !!
 
 - oohhh this is going to be my favorite part🥹🥹🥹 LIST OF MY OOMFIESSS AAAA 💝💝
 
