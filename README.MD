@@ -7,7 +7,7 @@ though, if i say stop, STOP. if you keep pestering me, forget it.
 
 - my birthday is august 30th , yeah ,,
 
-- my fandoms that i’m currently in and fixated on, apologies if i miss a few.
+- my fandoms that i’m currently in or have been in, apologies if i miss a few.
 
 - Unstable Smp , Forsaken (iwecuf fandom.) , , Animal Hospital Anomaly ,Phighting ! , Sfawtde / Dawtde , No More Time , Minecraft in general Prolly more.. . Again, apologies if i missed a few ,,
 
@@ -15,9 +15,9 @@ though, if i say stop, STOP. if you keep pestering me, forget it.
 
 - IWC : subspace cosplayers / fictkins unless we are close , most strangers unless i’m in a particularly alright mood / i interact first , previously stated fandoms , i don’t ,, quite know what to put here , apologies.
 
-- FICTKINS : Medkit, (phighting.) Two Time , ( Forsaken . ) , uu!parrotx2 ,
+- FICTKINS : Medkit, (phighting.), UU!Parrot (unstable)
 
-- CURRENT FAVS : parrotx2 , conexion / sharpness , eggchan , rejoice , unstable smp in general ^_^ !!
+- CURRENT FAVS : parrotx2 , conexion / sharpness , eggchan , rejoice , unstable smp in general ^_^ !! also phighting lala
 
 - oohhh this is going to be my favorite part🥹🥹🥹 LIST OF MY OOMFIESSS AAAA 💝💝
 
