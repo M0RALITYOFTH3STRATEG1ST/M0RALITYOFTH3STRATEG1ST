@@ -11,9 +11,11 @@ though, if i say stop, STOP. if you keep pestering me, forget it.
 
 - Unstable Smp , Forsaken (iwecuf fandom.) , , Animal Hospital Anomaly ,Phighting ! , Sfawtde / Dawtde , No More Time , Minecraft in general Prolly more.. . Again, apologies if i missed a few ,,
 
-- DNI : T.R.A.S.H , extremely problematic fandoms , ex: terrible mouse , hazbin / helluva fandom / vivzepop supporters, yall R weird asf ,, Dandys World fandom / players unless we’re close (i really don’t want to talk to people who support qwelver, i’m mainly neutral on the controversy however.) . darkshippers + boundary breakers DNI . 
+- DNI : T.R.A.S.H , extremely problematic fandoms , ex: terrible mouse , hazbin / helluva fandom / vivzepop supporters, yall R weird asf . darkshippers + boundary breakers DNI . 
 
 - IWC : subspace cosplayers / fictkins unless we are close , most strangers unless i’m in a particularly alright mood / i interact first , previously stated fandoms , i don’t ,, quite know what to put here , apologies.
+
+- IWVEC : Dandys World fandom / Players unless we’re close. (i’m mainly neutral on the controversy.)
 
 - FICTKINS : Medkit, (phighting.), UU!Parrot (unstable)
 
