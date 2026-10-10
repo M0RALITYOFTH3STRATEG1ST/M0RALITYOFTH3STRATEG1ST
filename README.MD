@@ -9,7 +9,7 @@ though, if i say stop, STOP. if you keep pestering me, forget it.
 
 - my fandoms that i’m currently in or have been in, apologies if i miss a few.
 
-- Unstable Smp , Forsaken (iwecuf fandom.) , , Animal Hospital Anomaly ,Phighting ! , Sfawtde / Dawtde , No More Time , Minecraft in general Prolly more.. . Again, apologies if i missed a few ,,
+- Unstable Smp , Forsaken (iwecuf fandom.) , , Anomaly Cafe ,Phighting ! , Sfawtde / Dawtde , No More Time , Asylum Life , Minecraft in general Prolly more.. . Again, apologies if i missed a few ,,
 
 - DNI : T.R.A.S.H , extremely problematic fandoms , ex: terrible mouse , hazbin / helluva fandom / vivzepop supporters, yall R weird asf . darkshippers + boundary breakers DNI . 
 
@@ -23,7 +23,7 @@ though, if i say stop, STOP. if you keep pestering me, forget it.
 
 - oohhh this is going to be my favorite part🥹🥹🥹 LIST OF MY OOMFIESSS AAAA 💝💝
 
-- CRUCIBLE / WIFIES!!! , Bill / Azure , Bagel / 1x , Zero , Star , Leon , Sean / Null , Spoke , Frost / Noel , Sorrow !!!
+- CRUCIBLE / WIFIES!!! , Bill / Azure , Bagel / 1x , Zero , Star , Leon , Sean / Null , Lotti / Zam , Frost / Noel , Sorrow !!!
 I LOVE YOU OOMFIES /P AAAAAHHHAEUGAEGUH G🥹🥹🥹🥹 YIU GUYS ARE AMAZING !!!! <33
 
 - Some of my favorite songs / Artists ! :
