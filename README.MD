@@ -2,24 +2,21 @@
 
 🦜 ;; INFO / BYI / BYF !! ☆༄
 
-- hello, greetings, salutations, whichever one you prefer. i’m bee, or uh ,, i also go by x2 and medkit . i’m a fictionkin and a minor, those who are 18+ would be preferred not to interact, or iwvec unless i knew you prior . oh, and i may seem a bit,, err, cold at first. rude / harsh too. it just,, depends on how you approach me. i'm very prone to grudges if you rub off on me the wrong way. aan exception is if your my friends' oomfs,, i'll still be awkward, but if you share any interests with me, i mmay come to tolerate you..
-though, if i say stop, STOP. if you keep pestering me, forget it. 
+- hello, greetings, salutations, whichever one you prefer. i’m bee, or uh ,, i also go by x2 and medkit . i’m a fictionkin and a minor, those who are 18+ would be preferred not to interact, or iwvec unless i knew you prior . i'm very prone to grudges if you rub off on me the wrong way.
 
 - my birthday is august 30th , yeah ,,
 
-- my fandoms that i’m currently in or have been in, apologies if i miss a few.
+- my fandoms that i’m currently in, apologies if i miss a few.
 
-- Unstable Smp , Forsaken (iwecuf fandom.) , , Anomaly Cafe ,Phighting ! , Sfawtde / Dawtde , No More Time , Asylum Life , Minecraft in general Prolly more.. . Again, apologies if i missed a few ,,
+- Unstable Smp  , Anomaly Cafe ,Phighting ! , Sfawtde / Dawtde , No More Time , Asylum Life , Minecraft in general Prolly more.. . Again, apologies if i missed a few ,,
 
 - DNI : T.R.A.S.H , extremely problematic fandoms , ex: terrible mouse , hazbin / helluva fandom / vivzepop supporters, yall R weird asf . darkshippers + boundary breakers DNI . 
 
-- IWC : subspace cosplayers / fictkins unless we are close , most strangers unless i’m in a particularly alright mood / i interact first , previously stated fandoms , i don’t ,, quite know what to put here , apologies.
+- FICTKINS : Medkit, (phighting) UU!parrot (somewhat)
 
-- IWVEC : Dandys World fandom / Players unless we’re close. (i’m mainly neutral on the controversy.)
+- QUESTIONING : andrew2002
 
-- FICTKINS : Medkit, (phighting.), UU!Parrot (unstable)
-
-- CURRENT FAVS : parrotx2 , conexion / sharpness , eggchan , rejoice , unstable smp in general ^_^ !! also phighting lala
+- CURRENT FAVS : parrotx2 , andrew2002 , eggchan , rejoice , unstable smp in general ^_^ !! also phighting lala
 
 - oohhh this is going to be my favorite part🥹🥹🥹 LIST OF MY OOMFIESSS AAAA 💝💝
 
